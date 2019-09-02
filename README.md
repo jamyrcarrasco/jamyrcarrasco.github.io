@@ -1,1 +1,0 @@
-# jamyrcarrasco.github.io
